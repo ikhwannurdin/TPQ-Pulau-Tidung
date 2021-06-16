@@ -15,3 +15,5 @@ Antrean
 kamus
 Daily Task
 Perpusatakaan
+Doa Pagi & Petang
+wallpaper Islami
